@@ -1,3 +1,5 @@
+Jolina Lam
+
 HOMEWORK PACKET 1
 
 PART A
